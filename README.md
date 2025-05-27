@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mohamed160-cr
 - 👀 I’m interested in learn more about programation.
-- 🌱 I would like currently learning computer engineering
+- 🌱 I would like learning computer engineering
 - 📫 How to reach me ... ???
 - 😄 Pronouns: 160-cr
 - ⚡ Fun fact: I like to speack French
